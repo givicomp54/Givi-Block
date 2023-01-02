@@ -27,7 +27,7 @@ Windows 7 (1.7)   : ████[][][][][][] 40%
 Ссылки для скачивания: 
 Windows 2000:
 
-                 Givi9 GiviBlock 2022 Не являеться продажным средством       <!-- SibMult.ru begin --> <a href="http://www.sibmult.ru/" target="_blank"><img width="88" height="31" border="0" src="http://www.sibmult.ru/banners/sibmult_88_31_1.gif" title="FLASH - ПОРТАЛ"></a> <!-- SibMult.ru end -->
+                 Givi9 GiviBlock 2022 Не являеться продажным средством      
                  
                  
 К сожаления было решено сейчас начать делать только на базе виндовс хр
